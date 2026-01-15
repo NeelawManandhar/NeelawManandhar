@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ Tech & software dev junkie<br>📱 Obsessed with building apps<br>📸 Photography keeps me human<br>☕ Coffee is my fuel, not a choice<br>🐈 Cats… yeah, they actually love me back
+⚡ Tech & software dev junkie<br>📱 Obsessed with building apps<br>📸 Photography keeps me human<br>☕ Powered by coffee<br>🐈 Cats… yeah, they actually love me back
 
 
 ## 🌐 Socials:
